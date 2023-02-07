@@ -2,8 +2,6 @@
 
 Nuri Seok(석누리)
 
-Yonsei Univ.
-
 t.me/yggnamu
 
 三秋如一刻
