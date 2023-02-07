@@ -2,6 +2,8 @@
 
 Nuri Seok(석누리)
 
+DEROS : 2024 FEB 21
+
 t.me/yggnamu
 
 三秋如一刻
